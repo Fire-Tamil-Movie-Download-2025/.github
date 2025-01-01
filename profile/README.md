@@ -531,17 +531,6 @@ World Visa boasts a team of dedicated professionals, each bringing a wealth of e
    - **Role**: Provide ongoing support and address any queries or concerns clients may have.
    - **Expertise**: Excellent communication skills and client-centric approach.
 
-### Meet Our Key Team Members:
-
-| **Name**         | **Position**               | **Experience** | **Specialization**                        |
-|------------------|----------------------------|-----------------|--------------------------------------------|
-| Mr. Rajesh Kumar | Senior Visa Consultant     | 15 Years        | Work and Immigration Visas                 |
-| Ms. Anjali Mehta | Documentation Specialist   | 10 Years        | Document Preparation and Verification      |
-| Mr. Suresh Patel | Interview Coach            | 8 Years         | Interview Preparation and Coaching         |
-| Ms. Priya Singh   | Customer Support Manager   | 12 Years        | Client Relations and Support               |
-| Mr. Arjun Desai   | Senior Consultant          | 14 Years        | Student and Exchange Visas                 |
-
-*Note: The team continuously undergoes training to stay updated with the latest visa policies and procedures.*
 
 ---
 
@@ -636,7 +625,7 @@ For personalized assistance and to embark on your US visa application journey, r
 | **Method**        | **Details**                                                                 |
 |-------------------|-----------------------------------------------------------------------------|
 | **Website**       | [World Visa Contact](https://www.worldvisa.com/in/) |
-| **Phone**         | +91 982 000 6488                                                             |
+| **Phone**         | +91 982 000 09688                                                             |
 | **Email**         | ask@worldvisa.com                                                       |
 | **Address**       | World Visa, 123, Business Bay, Andheri West, Mumbai, Maharashtra, 400053, India |
 
@@ -656,10 +645,10 @@ For personalized assistance and to embark on your US visa application journey, r
 
 Stay updated with the latest news and tips by following World Visa on social media platforms:
 
-- **Facebook**: [World Visa Facebook Page](https://www.facebook.com/worldvisa)
-- **LinkedIn**: [World Visa LinkedIn](https://www.linkedin.com/company/worldvisa)
-- **Twitter**: [World Visa Twitter](https://twitter.com/worldvisa)
-- **Instagram**: [World Visa Instagram](https://www.instagram.com/worldvisa)
+- **Facebook**: [World Visa Facebook Page](https://www.facebook.com/worldvisanow)
+- **LinkedIn**: [World Visa LinkedIn](https://www.linkedin.com/company/worldvisanow)
+- **Twitter**: [World Visa Twitter](https://www.x.com/worldvisanow)
+- **Instagram**: [World Visa Instagram](https://www.instagram.com/worldvisanow)
 
 ### How to Schedule an Appointment:
 
