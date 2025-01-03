@@ -627,7 +627,7 @@ For personalized assistance and to embark on your US visa application journey, r
 | **Website**       | [World Visa Contact](https://www.worldvisa.com/in/) |
 | **Phone**         | +91 982 000 09688                                                             |
 | **Email**         | ask@worldvisa.com                                                       |
-| **Address**       | World Visa, 123, Business Bay, Andheri West, Mumbai, Maharashtra, 400053, India |
+| **Address**       | 10, Navalkar Building, 157, Khadilkar Rd, Kandawadi, Urankawadi, Mangal Wadi, Girgaon, Mumbai, Maharashtra 400004, India |
 
 ### Operating Hours:
 
